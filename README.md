@@ -1,4 +1,4 @@
-Hi, I’m @Gaardb 🦏\
+Hi, I’m @AImeida 🦏\
 I’m interested in trying things out ✏️\
 I’m currently learning math 🌱
 
